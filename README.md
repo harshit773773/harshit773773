@@ -14,4 +14,4 @@
 ## 📫 Connect With Me
 LinkedIn: ## 📫 Connect With Me
 
-💼 LinkedIn: https://www.linkedin.com/in/Harshit Yadav/
+💼 LinkedIn: https://www.linkedin.com/in/ Harshit Yadav /
