@@ -12,4 +12,6 @@
 - Web Development
 
 ## 📫 Connect With Me
-LinkedIn: Add your LinkedIn profile link here
+LinkedIn: ## 📫 Connect With Me
+
+💼 LinkedIn: https://www.linkedin.com/in/Harshit Yadav/
